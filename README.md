@@ -1,0 +1,1 @@
+# konkurs-vchiteliv-kharkiv
